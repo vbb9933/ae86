@@ -8,7 +8,7 @@
 [![移动端优化](https://img.shields.io/badge/手机端-秒开不卡顿-00c2ff?style=for-the-badge)](https://ae86dh.club)
 [![纯净体验](https://img.shields.io/badge/体验-无广告纯净-16a34a?style=for-the-badge)](https://ae86dh.club)
 
-![AE86 精品视频最新地址发布](./1.png)
+![AE86 精品视频最新地址发布](https://ae86dh.club)
 
 </div>
 
